@@ -1,2 +1,1 @@
-# aziz
-elbek radjabov
+
